@@ -1,6 +1,6 @@
 # Caesar Salad
 
-- **Dificuldade:** _fácil_
+- **Dificuldade:** _Fácil_
 
 - **Serve:** _4 pessoas_
 
@@ -48,7 +48,8 @@ Misture bem todos os ingredientes do molho, adicione uma pitada de sal para real
 
 **Dica 1:** É possível colocar os ingredientes em um processador ou em liquidificador para que obtenha um molho mais homogêneo.
 **Dica 2:** Dependendo da anchova que for utilizada é possível que já dê o ponto do sal, então neste caso não há necessidade de adição de sal.
+**Dica 3:** É possível utilizar molho inglês para fazer o Molho Caesar, apenas algumas gotinhas.
 
-#### Para servir:
+#### Para servir
 
 Em uma travessa para salada coloque algumas folhas e alguns croutons, regue com o molho. Repita este procedimento para três ou mais camadas. Rale queijo parmesão para finalizar e adicione mais molho a gosto.
