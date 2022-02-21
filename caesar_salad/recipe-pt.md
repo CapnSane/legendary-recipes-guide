@@ -1,8 +1,10 @@
 # Caesar Salad
 
-**Dificuldade:** _fácil_
-**Serve:** _4 pessoas_
-**Tempo de preparo:** _20 minutos_
+- **Dificuldade:** _fácil_
+
+- **Serve:** _4 pessoas_
+
+- **Tempo de preparo:** _20 minutos_
 
 ## Ingredientes
 
