@@ -53,3 +53,7 @@ Misture bem todos os ingredientes do molho, adicione uma pitada de sal para real
 #### Para servir
 
 Em uma travessa para salada coloque algumas folhas e alguns croutons, regue com o molho. Repita este procedimento para três ou mais camadas. Rale queijo parmesão para finalizar e adicione mais molho a gosto.
+
+## Armazenamento do molho
+
+Se utilizar ovos crus para fazer a maionese caseira, o molho poderá ser armazenado por até três dias em geladeira.

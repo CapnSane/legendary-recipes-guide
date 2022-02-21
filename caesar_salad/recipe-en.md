@@ -53,3 +53,7 @@ Mix all the sauce ingredients well, add a pinch of salt to enhance the flavor an
 #### Para servir
 
 Place some leaves and croutons on a salad platter, drizzle with the Caesar dressing. Repeat this procedure for three or more layers. Grate Parmesan cheese to finish and add more sauce to taste.
+
+## Storing the salad dressing
+
+This will keep up to 3 days if you make a homemade mayonnaise with raw yolk. The egg yolk in this dressing it needs to be refrigerated immediately if not using right away.
