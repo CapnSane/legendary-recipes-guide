@@ -1,2 +1,3 @@
 # legendary-recipes-guide
-Some recipes that I used to do.
+
+This repository has some recipes that I used to do and recipes that I'm trying to improve.
