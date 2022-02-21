@@ -34,7 +34,7 @@
 1. Oregano
 1. Salt
 
-## Modo de Preparo
+## How to prepare
 
 ### Croutons
 
@@ -50,7 +50,7 @@ Mix all the sauce ingredients well, add a pinch of salt to enhance the flavor an
 **Tip #2:** The Anchovies already have salt, then you must take care when you put the salt. It's possible that your Caesar Dressing is still salted enough.
 **Tip #3:** It's possible using Worcestershire Sauce to increase the dressing flavour, but use a little bit only, a dash Worcestershire sauce is enough.
 
-#### Para servir
+#### Serving
 
 Place some leaves and croutons on a salad platter, drizzle with the Caesar dressing. Repeat this procedure for three or more layers. Grate Parmesan cheese to finish and add more sauce to taste.
 
