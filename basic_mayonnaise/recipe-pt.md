@@ -10,7 +10,7 @@
 
 1. 2 gemas grandes
 1. 1 colher de chá de mostarda Dijon
-1. 4 colheres de chá de suco de limão fresco
+1. 4 colheres de chá de suco de limão siciliano fresco
 1. 1 xícara de óleo vegetal
 1. Sal grosso e pimenta do reino
 
