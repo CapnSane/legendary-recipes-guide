@@ -22,3 +22,7 @@
 1. Refrigerate in an airtight container, up to 1 week.
 
 **Tip #1:** If the mayonnaise separates after the oil is added, the mixture has broken. To bring it to a creamy state, add an egg yolk and 1 teaspoon tepid water to a clean bowl, and slowly add the broken mayonnaise while whisking constantly. Then, whisk in 1/4 cup more oil.
+
+## Storage
+
+Mayonnaise can be stored in an airtight container for up to 1 week in the refrigerator.
