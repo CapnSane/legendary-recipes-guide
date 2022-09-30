@@ -47,8 +47,12 @@
 1. Bata-os com uma batedeira durante o tempo necessário para que fiquem fofos.
 1. Em seguida, adicione a mistura de chocolate e continue batendo.
 1. Adicione a farinha, o cacau em pó e misture delicadamente.
+
    \*Observação: Não dobre muito ou ele vai esvaziar e ficar denso.
+
 1. Todos os seus ingredientes devem estar agora incorporados. Agora adicione a massa na forma preparada e nivele.
 1. Asse por 20 minutos a 350°F ou 180°C, eles crescerão, o que é normal. Retire-os e bata-os no balcão, para deixá-los ligeiramente rachados e mais uniformes. Adicione o sal marinho por cima, se desejar, e asse novamente por 25 minutos na mesma temperatura.
+
    \*Nota: sobre o tempo de cozimento, os 25 minutos adicionais nem sempre são necessários, aconselho qualquer pessoa a assá-los ao seu gosto.
+
 1. Por fim, corte-os em 12 ou 15 fatias e divirta-se!

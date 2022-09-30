@@ -47,8 +47,13 @@
 1. Whip them together with a hand mixer for as long as it takes for them to go fluffy.
 1. Next, add the chocolate mixture and continue whipping.
 1. Add the flour, cocoa powder and fold it gently.
+
    \*Side Note: Don’t fold it too much or it will deflate and be dense.
+
 1. All your ingredients should now be incorporated. Now add the batter into your prepped tin and level it out.
+
 1. Bake for 20 minutes at 350°F or 180°C, they will rise which is normal. Take them out and slam them on the counter, to make them slightly cracked and more even. Add your sea salt on the top, if you wish and bake again for 25 minutes at the same temperature.
-   \*Side note: from ages after I wrote this: I have received a couple replies on the baking time (Some have burnt) the additional 25 minutes is not always necessary, I advise anyone following Tasty’s recipe to bake them to their liking.
+
+   \*Side note: the additional 25 minutes is not always necessary, bake them to their liking.
+
 1. Finally cut them up in 12 or 15 slices and enjoy!
