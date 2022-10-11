@@ -45,6 +45,7 @@
 1. Em uma nova tigela, coloque os açúcares com a baunilha e o sal.
 1. Em outra tigela, quebre seus 6 ovos, faça uma verificação rápida da casca e bata os ovos e adicione-os (lentamente como quiser, um por um).
 1. Bata-os com uma batedeira durante o tempo necessário para que fiquem fofos.
+   \*Dica: depois de muitos experimentos, o tempo ótimo ou próximo do que é ótimo é de 10 minutos, se bater menos ele tende a ficar duro, se bater mais ele tende a ficar com consistência de bolo.
 1. Em seguida, adicione a mistura de chocolate e continue batendo.
 1. Adicione a farinha, o cacau em pó e misture delicadamente.
 

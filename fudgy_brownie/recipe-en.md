@@ -45,6 +45,7 @@
 1. In a new bowl, put your sugars in with the vanilla and salt.
 1. In yet another bowl, crack your 6 eggs, do a quick shell check and whip the eggs and then add them (slowly as you want, one by one).
 1. Whip them together with a hand mixer for as long as it takes for them to go fluffy.
+   \*Tip: after many experiments, the optimal time or close to optimal is 10 minutes, if you mix less it tends to get hard, if you mix it more it tends to be cakey.
 1. Next, add the chocolate mixture and continue whipping.
 1. Add the flour, cocoa powder and fold it gently.
 
