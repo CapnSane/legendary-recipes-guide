@@ -1,4 +1,4 @@
-# Croquete (queijo)
+# Croquete de queijo (Bolinhas de queijo)
 
 - **Dificuldade:** _Fácil_
 

@@ -1,4 +1,4 @@
-# Croquette (cheese)
+# Cheese balls croquette
 
 - **Difficulty:** _Easy_
 
